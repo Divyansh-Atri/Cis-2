@@ -1,1 +1,1 @@
-It is the course wrok of Computaional in science 2 
+It is the course work of Computaional in science 2 
